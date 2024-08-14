@@ -1,3 +1,3 @@
 👋 Oii, me chamo Laura Machado
-💕 Estou interessada em: Manter meu costume de ler 
+💕 Estou interessada em: Manter meu hábito de leitura
 ✌️ Amo viajar
